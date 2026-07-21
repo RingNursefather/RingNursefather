@@ -1,7 +1,9 @@
 
 
 
-                                                My name is Morning, I go by He/Him only
+                      My name is Morning, but I go by other names too. They mostly change based on the github I'm using, but                                                                              you can ALWAYS call me morning!
+  
+                     When I'm using this github, I mostly go by Morning, or Vasily/Rien/Callisto I go by He/Him only
 <p align="center">
   <img src="https://64.media.tumblr.com/c9866be81498de05e3c727f5dfe4300c/4650c263c2440927-6d/s250x400/a265d77e0a8153711a22b37fa800cc0f32b44177.gifv"/>
 
