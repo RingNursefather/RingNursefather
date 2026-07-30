@@ -7,3 +7,11 @@
                         As the dimensional rifts opened, ██████ "Bullet" ██ was brought into this world.
          Using his previous experience with anomalous entities, he quickly rose through the ranks and became a site director.
                              However, his  ̶-c̶u̶r̶s̶e̶  contract seemed to have carried on with him.
+
+
+
+
+<img width="700" height="525" alt="image" src="https://github.com/user-attachments/assets/6be6cef9-f54c-45ff-a520-757338ea4c91" />
+
+
+                             
