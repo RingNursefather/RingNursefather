@@ -15,4 +15,4 @@
 
 
                              
-"@DirectorKris-Male and I."
+"[@DirectorKris-Male](https://github.com/DirectorKris-Male) and I."
